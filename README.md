@@ -1,1 +1,3 @@
-# evelin
+# “Pequenos Guardiões da Natureza” pode ser descrito como um projeto ou iniciativa educativa voltada para crianças, com foco em conscientização ambiental e cuidado com o meio ambiente.
+
+Em geral, a proposta envolve atividades lúdicas e pedagógicas que incentivam os pequenos a se tornarem “guardiões” da natureza no dia a dia. Isso inclui aprender sobre preservação das florestas, economia de água, reciclagem, cuidado com os animais e respeito aos ecossistemas.A ideia central é formar valores de responsabilidade ambiental desde cedo, usando histórias, jogos, oficinas e ações práticas — como plantar árvores, separar lixo corretamente e observar a biodiversidade local.
